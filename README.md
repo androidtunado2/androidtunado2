@@ -1,7 +1,7 @@
 # Cinema APK MOD 2024 v4.0.1 Vermelho (VIP) Download Grátis (Nova Versão)
 O Cinema APK é um aplicativo de streaming que oferece acesso gratuito a um vasto catálogo de filmes, séries, documentários e outros conteúdos. Ele é ideal para quem procura uma alternativa prática aos serviços pagos. A versão 2024 traz diversas melhorias em relação às versões anteriores, incluindo:
 
-![maxresdefault]([https://www.google.com/url?sa=i&url=https%3A%2F%2Fgithub.com%2FCinema-APK-Baixar-Gratis1&psig=AOvVaw13dYsI-JELUL_wnmrZqVtB&ust=1732738594017000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCMDDuLno-okDFQAAAAAdAAAAABAa](https://avatars.githubusercontent.com/u/189103475?s=280&v=4))
+![maxresdefault](https://avatars.githubusercontent.com/u/189103475?s=280&v=4)
 
 ## Download Grátis: [Cinema APK](https://androidtunado.com.br/cinema-apk/)
 
